@@ -1,1 +1,1 @@
-# Fuck-school
+# Fuck-school.github.io
